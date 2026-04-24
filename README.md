@@ -15,7 +15,7 @@ ${\textsf{\color{#ccdbde}m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ}}$ <img src="tu
 
 ${\textsf{\color{#8ba4a8}sһᥱ / ᥲᥒᥡ .ᐟ ♡}}$
 
-𝓲𝐭𝐫𝐚𝐩𝐩𝐞𝐝 & 𝐞𝐥𝐥𝐢𝐨𝐭 fict-kin 𓆩♡𓆪
+${\textsf{\color{#ccdbde}𝓲𝐭𝐫𝐚𝐩𝐩𝐞𝐝, 𝐞𝐥𝐥𝐢𝐨𝐭 fict-kin 𓆩♡𓆪}}$
 
 
 

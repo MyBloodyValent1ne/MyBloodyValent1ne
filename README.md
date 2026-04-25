@@ -15,6 +15,7 @@
 
 <img src="Titelloses 150_20260425142254.png" width="1000">
 
+
 <p align="center">
 </b>⟡ 𓈒「 s͟𝒐𝒍 」
 </p>
@@ -34,7 +35,7 @@
 𝘮𝘶𝘭𝘵𝘪𝘴𝘩𝘪𝘱𝘱𝘦𝘳 🎲
 </p>
 
-
+<img src="IMG_4773.PNG" width="1000">
 
 
 

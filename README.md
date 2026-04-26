@@ -20,7 +20,7 @@
 </b>⟡ 𓈒「 s͟𝒐𝒍 」
 </p>
 
-<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ ♡ sһᥱ / ᥲᥒᥡ .ᐟ
+<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ ⸝⸝ sһᥱ / ᥲᥒᥡ .ᐟ ♡
 </p>
 
 <p align="center">

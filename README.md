@@ -20,20 +20,13 @@
 </b>⟡ 𓈒「 s͟𝒐𝒍 」
 </p>
 
-<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ ♡
+<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ ♡ sһᥱ / ᥲᥒᥡ .ᐟ
 </p>
 
 <p align="center">
-</b>sһᥱ / ᥲᥒᥡ .ᐟ
+</b>𝓲𝐭𝐫𝐚𝐩𝐩𝐞𝐝 & 𝐞𝐥𝐥𝐢𝐨𝐭 fict-kin ❄️ 𝘮𝘶𝘭𝘵𝘪𝘴𝘩𝘪𝘱𝘱𝘦𝘳 🌹
 </p>
 
-<p align="center">
-</b>𝓲𝐭𝐫𝐚𝐩𝐩𝐞𝐝 & 𝐞𝐥𝐥𝐢𝐨𝐭 fict-kin ❄️
-</p>
-
-<p align="center">
-𝘮𝘶𝘭𝘵𝘪𝘴𝘩𝘪𝘱𝘱𝘦𝘳 🌹
-</p>
 
 
 
